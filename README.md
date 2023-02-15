@@ -1,0 +1,2 @@
+# primerRepoJaJa ridmi
+asasa
